@@ -1,5 +1,6 @@
 # photograhpy
 Here are some photos I took recent days
+-Yes correct! This is me
 ![alt tag](https://github.com/wonderfulcorporation/photograhpy/blob/master/Photo%20selected/Frank%20Show%20(9).JPG)
 ![alt tag](https://github.com/wonderfulcorporation/photograhpy/blob/master/Photo%20selected/Frank%20Show%20(3).JPG)
 ![alt tag](https://github.com/wonderfulcorporation/photograhpy/blob/master/Photo%20selected/Frank%20Show%20(2).JPG)
