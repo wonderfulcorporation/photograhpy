@@ -1,10 +1,9 @@
-# photograhpy
-###我是个摄影爱好者，我并不喜欢用我的相机故意夸大美和恶化丑。定格他们最真实和最自然的状态是我每次按下快门的真切想法。wonderfulsuccess@163.com
-###Here are some photos I took recent days
+###我喜爱摄影，也喜欢思考光与影背后的故事，我并不喜欢用我的相机故意夸大美和恶化丑。定格他们最真实和最自然的状态是我每次按下快门的真切想法 ：）wonderfulsuccess@163.com
+###Here are some photos I took recent days, if you like them or want to have a discuss with me, you are welcome to send me e-mail
 ![Hello I am Frank](PhotoSelected/C (10).JPG)
-####虹桥火车站二楼，随眼看去发现候车厅摩肩接踵。有意思的是现在他们聚在一起几个小时以后又将各自落定于自己的角落
+####虹桥火车站二楼，随眼看去发现候车旅客厅摩肩接踵。有意思的是，现在他们聚在一起几个小时以后又将各自落定于自己的角落，几分伤感竟油然而生
 ![Hello I am Frank](PhotoSelected/C (1).JPG)
-####赋予照片以黑白调，也许会引起更多人的同感
+####如果我当时更细心些，赋予照片以黑白调，也许会引起更多人的同感
 ![Hello I am Frank](PhotoSelected/C (12).JPG)
 ![Hello I am Frank](PhotoSelected/C (13).JPG)
 ![Hello I am Frank](PhotoSelected/C (14).JPG)
