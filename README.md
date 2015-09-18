@@ -1,14 +1,9 @@
 # photograhpy
-我是个摄影爱好者，我并不喜欢用我的相机故意夸大美和恶化丑。定格他们最真实和最自然的状态是我每次按下快门的真切想法。wonderfulsuccess@163.com
-#1
-##2
-###3
-####4
-
-Here are some photos I took recent days
--Yes correct! This is me
-![Hello I am Frank](PhotoSelected/C (1).JPG)
+###我是个摄影爱好者，我并不喜欢用我的相机故意夸大美和恶化丑。定格他们最真实和最自然的状态是我每次按下快门的真切想法。wonderfulsuccess@163.com
+###Here are some photos I took recent days
 ![Hello I am Frank](PhotoSelected/C (10).JPG)
+####虹桥火车站二楼，随眼看去发现候车厅摩肩接踵。有意思的是现在他们聚在一起几个小时以后又将各自落定于自己的角落
+![Hello I am Frank](PhotoSelected/C (1).JPG)
 ![Hello I am Frank](PhotoSelected/C (12).JPG)
 ![Hello I am Frank](PhotoSelected/C (13).JPG)
 ![Hello I am Frank](PhotoSelected/C (14).JPG)
