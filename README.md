@@ -1,4 +1,10 @@
 # photograhpy
+我是个摄影爱好者，我并不喜欢用我的相机故意夸大美和恶化丑。定格他们最真实和最自然的状态是我每次按下快门的真切想法。wonderfulsuccess@163.com
+#1
+##2
+###3
+####4
+
 Here are some photos I took recent days
 -Yes correct! This is me
 ![Hello I am Frank](PhotoSelected/C (1).JPG)
