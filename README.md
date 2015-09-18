@@ -1,11 +1,10 @@
 ###我喜爱摄影，也喜欢思考光与影背后的故事，我并不喜欢用我的相机故意夸大美和恶化丑。定格他们最真实和最自然的状态是我每次按下快门的真切想法 ：）wonderfulsuccess@163.com
-###Here are some photos I took recent days, if you like them or want to have a discuss with me, you are welcome to send me e-mail
+###Here are some photos I took recent days. if you like them or want to discuss with me, you are welcome to send me e-mail.
 ![Hello I am Frank](PhotoSelected/C (10).JPG)
 ####虹桥火车站二楼，随眼看去发现候车旅客厅摩肩接踵。有意思的是，现在他们聚在一起几个小时以后又将各自落定于自己的角落，几分伤感竟油然而生
 ![Hello I am Frank](PhotoSelected/C (1).JPG)
 ####如果我当时更细心些，赋予照片以黑白调，也许会引起更多人的同感
 ![Hello I am Frank](PhotoSelected/C (12).JPG)
-![Hello I am Frank](PhotoSelected/C (13).JPG)
 ![Hello I am Frank](PhotoSelected/C (14).JPG)
 ####家庭的温暖诚然无法离开每个成员之间的相互关爱，小东小西的装点往往让爱更明显。无论怎样你就是喜欢这个地方、舍不得这个地方、讨厌因为上班不得不离开的感觉
 ![Hello I am Frank](PhotoSelected/C (15).JPG)
@@ -30,6 +29,7 @@
 ![Hello I am Frank](PhotoSelected/C (28).JPG)
 ![Hello I am Frank](PhotoSelected/C (3).JPG)
 ![Hello I am Frank](PhotoSelected/C (30).JPG)
+####据说，我们常去一座城市就会对它的车站产生强烈地依恋情愫。是他迎我们来，是他送我们走，多少年以后人已非物依在。不知道那时的我们又会怀着怎样的情怀走进当年的车站
 ![Hello I am Frank](PhotoSelected/C (32).JPG)
 ![Hello I am Frank](PhotoSelected/C (34).JPG)
 ![Hello I am Frank](PhotoSelected/C (35).JPG)
@@ -44,7 +44,7 @@
 ####同学之间没有那么多的讲究，我不管你的手干不干净，你敢烤我就敢吃。我不喜欢毕业季，因为一周以后你在大连我在上海，我们不担心见不到面，而是担心找不到见面的理由
 ![Hello I am Frank](PhotoSelected/C (44).JPG)
 ![Hello I am Frank](PhotoSelected/C (45).JPG)
-####我不知道它会打给谁，但是在电影里他常常打给远方的父母
+####我不知道它会打给谁，但是在电影里他常常打给远方的父母。一个人在外面漂泊久了，他就会突然想家，就会突然买票，就会突然回家，有时还会突然长大。例如《平凡的世界》中的王满银同学
 ![Hello I am Frank](PhotoSelected/C (46).JPG)
 ####我喜欢去书店，只是因为他们的内心稍显平和
 ![Hello I am Frank](PhotoSelected/C (47).JPG)
